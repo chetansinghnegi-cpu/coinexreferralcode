@@ -1,4 +1,4 @@
-**CoinEx referral Code "save10" Get 20% Off On Trading Fees**
+<h1>CoinEx referral Code "save10" Get 20% Off On Trading Fees</h1>
 
 If you’re ready to step up your crypto trading game, using the CoinEx referral code “save10” could be one of the smartest moves you make — especially when it comes to saving on trading fees and unlocking a generous bonus. In this post we’ll dive deep into the benefits, how it works, what you should check, and how you can make the most of the offer while minimising risk.
 
